@@ -1,0 +1,1 @@
+There is a colony named smart colony their are lot of houses but is no super market or restaurant etc.
